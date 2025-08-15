@@ -1,5 +1,4 @@
-# 💫 About Me:
-always learning 
+
 
 
 ## 🌐 Socials:
